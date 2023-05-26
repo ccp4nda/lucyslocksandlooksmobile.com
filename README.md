@@ -1,1 +1,1 @@
-# lucyslocksandlooksmobile.com
+# lucyslocksandlooksmobile
